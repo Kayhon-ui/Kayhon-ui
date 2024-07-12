@@ -2,7 +2,7 @@
 - 👀 I’m interested in software engineering 
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me (kayhoncollab@gmail.com)
+- 📫 How to reach me (kayhoncollab@gmail.com) (Instagram: Kayhon__)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im am extremely intruiged and facinated with coding. And software problem solving.
 
